@@ -1,7 +1,9 @@
 # Jazz 2 ![](https://lh3.googleusercontent.com/pw/ABLVV87wOpBLUXdmoqmpTBQTQRGonNbBh-avLHZCmDJwkO3d6-Pw1he0UMzsO8bxRkdNEm_WhPojQq4K_AbLFhfWgCJwPbx1kcmxcNOBkQr6n_Vp-vtIk833tYwmGeQZlVgq0Pna7tX6V3U5Rn3rFK9SS8s=w1242-h429-s-no =70x)
 > Пресс-релиз
 
-==Free Techno / Experimental Dance Music / Future Jazz==
+_Free Techno / Experimental Dance Music / Future Jazz_
+
+[the test file in here.](/test.md)
 
 ![Jazz2: Игорь Мозгалёв и Пётр Талалай. Official artwork by Color Fool](https://lh3.googleusercontent.com/pw/ABLVV84VVgTYmlldwKH4PQ3bZ39oXgDxyQZ0Rll5oWGmuuj06r4i3uSLVUhRIo689hVuj6ii3i6vDd5jqKiIXadV9ySfCcTO34GPzAefMqYxoWWu60wXF9U=s0-d-ip)
 
